@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @oAlteeva
+- currently Learning 📚
